@@ -1,2 +1,1 @@
-# Assignment-01-CV
-Pratyaphong Thananata_662110148
+662110148 Pratchayaphong Thananta 
